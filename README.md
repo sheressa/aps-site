@@ -1,2 +1,2 @@
 # aps-site
-https://auto-detailing.squarespace.com 
+https://www.applepolishingsystems.com 
